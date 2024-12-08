@@ -60,3 +60,6 @@ My only complaint within the team was trying to reframe so late when we had what
 
 ### General reflection
 Simply being in a vastly different place with a group of people who I would otherwise never have a reason to interact with. Studying engineering, working in software, and having very nerdy friends gives me a very narrow view and experience of the world that's hard to break out of or even notice a lot of the time. The same applies to having lived in upper-middle class Melbourne my entire life and not having left the country. A large part of why I enrolled in GIG in the first place was to break my sphere and experience something very different. GIG has done that. Thanks for the opportunity and the experience ~~and the cheap travel~~.
+
+### Diary link
+[Here's the link to my diary entries](https://drive.google.com/drive/folders/1uvHpdL22CqzRz56CWAq_f9Gkjpb65BHP?usp=sharing). I didn't feel comfortable recording them, so they're all written.
